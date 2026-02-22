@@ -64,7 +64,7 @@ The game-theoretic and macroeconomic philosophies driving the Klyrox Protocol ar
 * *The Heavy Metal Intelligence*
 * *The Synthetic C-Suite*
 
-*(Available via [Amazon](https://www.amazon.com/dp/B0GN8JWCHY) / Klyrox Research Labs)*
+*(Available via [Amazon](https://www.amazon.com/dp/B0GN8JWCHY) / [Google Books](https://play.google.com/store/books/series?id=GSqYHAAAABCANM))*
 
 ---
 
